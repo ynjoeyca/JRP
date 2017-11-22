@@ -1,1 +1,1 @@
-# Jr
+# JRT Japanese Restaurant Toronto 
